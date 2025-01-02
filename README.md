@@ -17,5 +17,5 @@ Tänk på att gå tillbaka till tidigare veckor och använd de resurser ni fått
 ##### Med tillhörande repon
 * **Måndag** - Jobba med uppgift
 * **Tisdag-Onsdag** - Nyårsledigt
-* **Torsdag** - Jobba vidare med uppgiften och fortsätta med bootcamps och e-learning ni inte hunnit samt repetera viktiga koncept ni tycker känns extra kluriga.
+* **Torsdag** - Jobba vidare med uppgiften.
 * **Fredag** - DEADLINE kl 9 för inlämning av Planned Planthood-uppgiften. Efter det kan ni fortsätta med bootcamps och e-learning ni inte hunnit samt repetera viktiga koncept.
